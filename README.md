@@ -1,6 +1,4 @@
-# D 0 W N ⚡ 0 A D : https://tinyurl.com/c495vnsv
-
-verdantia
+# D 0 W N ⚡ 0 A D : https://tinyurl.com/mrx3y37b
 
 🌿 Verdantia
 
@@ -41,4 +39,4 @@ Interactive installations
 
 License
 
-MIT © 2025 Verdantia Collective
+MIT © 2026 Verdantia Collective
